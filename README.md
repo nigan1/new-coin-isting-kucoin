@@ -1,0 +1,1 @@
+# new-coin-isting-kucoin
